@@ -1,3 +1,2 @@
-Lesson 6. Home task №1
-
+Lesson 7. Home task 
 
